@@ -1,3 +1,6 @@
-### For HKNU AiLab_member
+## For HKNU AiLab_member
 
-#### prof. jang Forever !!
+### Prof. Jang Forever !!
+#### Prof. jk
+##### Sijo_bird Su.k
+##### Genius_coding Su.j
