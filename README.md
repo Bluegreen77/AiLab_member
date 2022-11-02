@@ -1,4 +1,4 @@
-## For HKNU AiLab_member
+## For HKNU AiLab_members
 
 ### Prof. Jang Forever !!
 #### Prof. jk
