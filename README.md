@@ -2,5 +2,5 @@
 
 ### Prof. Jang Forever !!
 #### Prof. jk
-##### Sijo_bird Su.k
-##### Genius_coding Su.j
+#### Sijo_bird Su.k
+#### Genius_coding Su.j
